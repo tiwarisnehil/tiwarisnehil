@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **snehiltiwari77@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19_-IaZ16jYUSQwPHG6sY9gIPniEhqoZE/view?usp=sharing](https://drive.google.com/file/d/19_-IaZ16jYUSQwPHG6sY9gIPniEhqoZE/view?usp=sharing)]([https://drive.google.com/file/d/17_DGPl4j5stQCKkUFNFQ3W1AGXfGkO5Z/view](https://drive.google.com/file/d/19_-IaZ16jYUSQwPHG6sY9gIPniEhqoZE/view?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/file/d/19_-IaZ16jYUSQwPHG6sY9gIPniEhqoZE/view?usp=sharing](https://drive.google.com/file/d/19_-IaZ16jYUSQwPHG6sY9gIPniEhqoZE/view?usp=sharing)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
